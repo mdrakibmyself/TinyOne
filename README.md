@@ -1,1 +1,1 @@
-# TinyOne
+https://mdrakibmyself.github.io/TinyOne/
